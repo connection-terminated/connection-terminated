@@ -5,9 +5,7 @@ dni —
 
 basic dni (proshippers/comshippers, pedos, zoos, etc)
 
-under 16 
-
-^^ (if youre looking to be friends)
+dnf under 16 (look it up.)
 
 weirdos
 
