@@ -1,6 +1,9 @@
 # connection-terminated
 honey im home
 
+![1000011002](https://github.com/user-attachments/assets/ef08cc30-7cf2-49ff-8aea-50c0257cf3bf)
+
+
 dni —
 
 basic dni (proshippers/comshippers, pedos, zoos, etc)
