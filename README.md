@@ -6,19 +6,16 @@ honey im home
 
 dni —
 
-basic dni (proshippers/comshippers, pedos, zoos, etc)
+— basic dni (proshippers/comshippers, pedos, zoos, etc)
 
-dnf under 16 (look it up.)
+— dnf under 17 (look it up.)
 
-weirdos
+— weirdos
 
-romantic jokes (i have a wonderful wife)
+— romantic jokes (i have a wonderful wifes)
 
-— anyone else is fine to interact
-
-— idc for sex jokes that much
-
-- *crazy* thought but william afton might not be a pedo guys, i think scott cawthon literally said that and proved this to not be his view on HIS character! ***crazier*** thought but headcanoning a character to be a pedo is kinda *weird*! woah crazy I KNOW!!!!!!!!!!!! basically william afton = pedo aus/hcs/you think its canon despite it never being implied at all dni youre fucking weird. headcanons are supposed to be fun.
+— *crazy* thought but william afton might not be a pedo guys, i think scott cawthon literally said that and proved this to not be his view on HIS character! ***crazier*** thought but headcanoning a character to be a pedo is kinda *weird*! woah crazy I KNOW!!!!!!!!!!!!
+- basically william afton = pedo aus/hcs/you think its canon despite it never being implied at all dni youre fucking weird. headcanons are supposed to be fun.
 
 — idc that the "correct" term is comship or darkship or whatever, when people tell me that as an "erm ackshually" it makes them look like a freak. its like specifying that a certain content creator is a different type of pedo. literally js shut up 😭✋
 
@@ -31,3 +28,9 @@ willry/helliam even if its queerplatonic, just tell me first, i like onesided pe
 clay burke x me hes mine go away hes mine dni if you like him hes mine
 
 butcher vanity i love that song
+
+extra —
+
+— idc for sex jokes that much
+
+— anyone else
